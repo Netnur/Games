@@ -1,3 +1,3 @@
 GAMES 😊👌😁
 
-https://muhammadziyo.github.io/Games/
+https://muhammadziyodevs.github.io/Games/
