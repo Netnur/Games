@@ -1,3 +1,3 @@
 GAMES 😊👌😁
 
-https://netnur.github.io/Games/
+https://muhammadziyo.github.io/Games/
